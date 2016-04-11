@@ -19,5 +19,8 @@ Currently most players:
 4. Rinse, Repeat  
 
 Nobody ever runs into each other,  
-SECenterDeath gives players a purpose, something to fight over!     (ง •̀_•́)ง   Q–(’̀-’̀Q )
+SECenterDeath gives players a purpose, something to fight over!  
+
+
+(ง •̀_•́)ง **CENTER DEATH**  Q–(’̀-’̀Q )
 
