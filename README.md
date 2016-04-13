@@ -25,3 +25,6 @@ SECenterDeath gives players a purpose, something to fight over!
 
 (ง •̀_•́)ง **CENTER DEATH**  Q–(’̀-’̀Q )
 
+
+This code is free to use for non-commercial purposes,  
+for commercial purposes please contact me at stephen.cernota@gmail.com
